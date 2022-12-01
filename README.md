@@ -6,3 +6,4 @@ TP Guitars and TP Wood Sounds is Chris's woodworking shop that is currently in t
 Look for more information and product images in the years to come - Right now we are waiting on the wood to dry and cure!
 
 5-2022 - Have added an accodian to the mix, now I need to learn to play it as well!
+12-2002 - Woodshop is getting closer to being ready to support some strings and wood building!
