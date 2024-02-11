@@ -8,3 +8,4 @@ Look for more information and product images in the years to come - Right now we
 5-2022 - Have added an accodian to the mix, now I need to learn to play it as well!
 12-2022 - Woodshop is getting closer to being ready to support some strings and wood building!
 12-2023 - Wish things were further along, but have added some good equipment!
+2-2-24 - Work continues in the shop with a rearrangelment of tools and installation of fixed pipe for the dust collection.
