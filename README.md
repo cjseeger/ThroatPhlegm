@@ -9,3 +9,4 @@ Look for more information and product images in the years to come - Right now we
 12-2022 - Woodshop is getting closer to being ready to support some strings and wood building!
 12-2023 - Wish things were further along, but have added some good equipment!
 02-2024 - Work continues in the shop with a rearrangement of tools and installation of fixed pipe for the dust collection.
+12-2024 - Looking forward to some vacation time ot get back into the shop and work on some projects!
