@@ -5,7 +5,7 @@ TP Guitars and TP Wood Sounds is Chris's woodworking shop that is currently in t
 
 Look for more information and product images in the years to come - Right now we are waiting on the wood to dry and cure!
 
-08-2026 - Been a while but I am getting back into the shop and also working on a Lyrics Solitaire game.
+08-2026 - It has been a while, but I am getting back into the shop and also working on a Lyrics Solitaire game.
 05-2022 - Have added an accordion to the mix, now I need to learn to play it as well!
 12-2022 - Woodshop is getting closer to being ready to support some strings and wood building!
 12-2023 - Wish things were further along, but have added some good equipment!
